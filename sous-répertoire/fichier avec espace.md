@@ -11,6 +11,8 @@
 1. qsdqslmkdqsldk qsdkùdk qsdkmk
 1. qTTO
 1. una des màs
+1. MODIFIER
+1. MODIFIER 2
 
 SKLDSLMDK%SDLMM
 
